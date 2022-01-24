@@ -1,2 +1,2 @@
-Qiosz
-Malr
+SAD
+7ZEN
