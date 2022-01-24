@@ -1,2 +1,1 @@
-SAD
-7ZEN
+SAD7ZEN
